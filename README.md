@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-LARM771113HGTGMN00
+LARM771113HGTGMN00
